@@ -1,10 +1,10 @@
 ## Hi, I'm Camille ✨
 
 
-📚 young developper but also 3d arstis and graphic designer<br/>
-👾 I creat some lil funny game<br/>
-🧠 Learn python and C#<br/>
-📷 follow my instagram -> [Instagram](https://www.instagram.com/camstcq.art/)<br/>
+📚 Young developper but also 3d artist and graphic designer<br/>
+👾 I creat some lil funny games<br/>
+🧠 I learn python and C#<br/>
+📷 Follow me on [Instagram](https://www.instagram.com/camstcq.art/)<br/>
 
 
 
