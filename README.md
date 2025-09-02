@@ -4,7 +4,7 @@
 📚 Young developper but also 3d artist and graphic designer<br/>
 👾 I creat some lil funny games<br/>
 🧠 I learn python and C#<br/>
-📷 Follow me on [Instagram](https://www.instagram.com/camstcq.art/)<br/>
+📷 Follow me on [Instagram](https://www.instagram.com/camstcq.art/) and on [Itch.io](https://camst.itch.io)<br/>
 
 
 
