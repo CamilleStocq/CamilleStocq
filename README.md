@@ -5,6 +5,7 @@
 👾 I creat some lil funny games<br/>
 🧠 I learn python and C#<br/>
 📷 Follow me on [Instagram](https://www.instagram.com/camstcq.art/) and on [Itch.io](https://camst.itch.io)<br/>
+💻 Go see my [website](https://camillestocq.wixsite.com/camillestocq) when you have time <br/>
 
 
 
